@@ -1,4 +1,4 @@
-
+Enhance Asana for macOS with Asana for macOS professional Plugin: real-time editing & custom shortcuts, the #1 plugin. Includes real-time editing and custom shortcuts for a
 
 
 
